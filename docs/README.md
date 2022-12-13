@@ -6,7 +6,7 @@ Life is Only a [Dream](https://odicforcesounds.bandcamp.com/track/it-was-only-a-
 
 ## America [Yin](https://odicforcesounds.bandcamp.com/track/accept-our-gift-ring-of-fire-yin) (1)
 
-[White Tiger](./letters/Tiger_America.md) **+**
+### [White Tiger](./letters/Tiger_America.md) **+**
 
 - We Came in Peace - 1980 - Year of the Golden Metal Monkey ( m )
 
@@ -14,7 +14,7 @@ Life is Only a [Dream](https://odicforcesounds.bandcamp.com/track/it-was-only-a-
 
 ## Asia [Yang](https://odicforcesounds.bandcamp.com/track/accept-our-gift-ring-of-fire-yang) (1)
 
-[Fire Dragon](./letters/Dragon_Asia.md) **=**
+### [Fire Dragon](./letters/Dragon_Asia.md) **=**
 
 # [Metal Monkey](https://odicforcesounds.bandcamp.com/track/you-are-the-wood-i-am-the-fire) (1)
 
@@ -27,7 +27,7 @@ Life is Only a [Dream](https://odicforcesounds.bandcamp.com/track/it-was-only-a-
 There is the Monkey who doesn't See(<b>America</b>), the one who doesn't Listen (me) and the one who doesn't talk (<b>Asia</b>):
 
 - In Theory, I am the creative one, while I don't care to build what ever goes into my mind...
-- In Theory, the one who doesn't See needs to work with the one who doesn't Talk to help the one who doesn't Listen to become better...
+- In Theory, the one who doesn't See needs to work with the one who doesn't Talk to help the one who doesn't Listen to become better.
 
 ---
 
